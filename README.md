@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Roses4377
+- 👀 I’m interested in: developer or websites
+- 📫 How to reach me discord: ღRoses#4377
